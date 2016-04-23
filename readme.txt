@@ -1,4 +1,5 @@
 Welcome to git£¡
 I love Git!
-ÎÒ°®³Â½¿
-ÄãºÃ
+6666666666666
+7777777777777
+I knoe kdlkv
